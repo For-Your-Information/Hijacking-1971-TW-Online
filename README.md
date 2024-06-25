@@ -4,7 +4,7 @@
 
 《亡命機劫》線上看、原版台版字幕，(電影)亡命機劫 Hijacking 1971免費線上看【小鴨版】而且還是原廠正版HD畫質。 亡命機劫 Hijacking 1971線上看、電影下載片免費：
 
-在線觀看 ➤ [亡命機劫 电影完整版中文字幕](https://justflixnet.com/en/movie/1147710/hijacking-1971)
+在線觀看 ➤ [亡命機劫 电影完整版中文字幕](https://justflixnet.com/zh/movie/1147710/hijacking-1971)
 
 亡命機劫 2024看線上 | 上映 | 看下載4k | 線上dvd | ptt 看線上
 
